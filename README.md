@@ -1,6 +1,6 @@
 # help with wordpad in windows
 
-[![change power and sleep settings in windows](get-detail.png)](https://computersolve.com/help-with-wordpad-in-windows/)
+[![change power and sleep settings in windows](get-detail.png)](https://icncomputer.com/help-with-wordpad-in-windows/)
 
 WordPad in Windows 10 is free of cost and convenient application. It was initially introduced with Windows 95, and We still use it in Windows 10 with many improved features. If you are new to Windows 10 WordPad or want to know some remarkable features about it, then Get help with WordPad in Windows 10 is made for you.
 
